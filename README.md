@@ -1,2 +1,1 @@
-# zapsoft
-zapsoft
+Todos os direitos reservados a https://atendechat.com
